@@ -11,7 +11,6 @@ Appassionato di **tecnologia, innovazione e creatività**, trasformo idee in sol
 
 ## 🔗 Link utili
 - [LinkedIn – enricoricciardella](https://www.linkedin.com/in/enricoricciardella)  
-- [GitHub – enricoricciardella](https://github.com/enricoricciardella)  
 
 ---
 
